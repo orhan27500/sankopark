@@ -1,0 +1,2 @@
+# sankopark
+çalınmıştı
